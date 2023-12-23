@@ -1,2 +1,2 @@
-# Pride_and_Prejudice
-📘오만과 편견
+# Books which I'v read.
+📘오만과 편견(Pride and Prejudice)
